@@ -1,4 +1,18 @@
-# Welcome to your organization's demo respository
-This code repository (or "repo") is designed to demonstrate the best GitHub has to offer with the least amount of noise.
+# Perabet
+# 🎉 [Perabet.com](https://nfsl.ink/perabet)  
+## 🚀 [Hemen Tıkla ve Giriş Yap!](https://nfsl.ink/perabet)  
 
-The repo includes an `index.html` file (so it can render a web page), two GitHub Actions workflows, and a CSS stylesheet dependency.
+[![Perabet Giriş](https://resmim.net/cdn/2025/01/19/DnRSHM.png)](https://nfsl.ink/perabet)  
+[![Perabet Giriş](https://resmim.net/cdn/2025/01/19/DnRSHM.png)](https://nfsl.ink/perabet)  
+
+---
+# Perabet - Perabet - Perabet
+# 🏆 Perabet 2025 Güncel Giriş Adresi!  
+
+🎰 En yeni ve güvenilir giriş adresimiz ile eğlence dolu bir dünyaya adım atın!  
+💎 Sizleri birbirinden özel fırsatlar, büyük ödüller ve sürpriz kampanyalar bekliyor.  
+
+🔥 Yüksek oranlar, geniş oyun çeşitliliği ve hızlı ödeme garantisi ile fark yaratıyoruz!  
+📢 [Perabet](nfsl.ink/perabet) dünyasına hemen katılın ve kazanmaya başlayın!  
+
+💡 Hemen giriş yaparak, avantajlarla dolu bu ayrıcalıklı deneyimi yaşamaya başlayabilirsiniz!
