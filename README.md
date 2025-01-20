@@ -2,8 +2,8 @@
 # 🎉 [Perabet.com](https://nfsl.ink/perabet)  
 ## 🚀 [Hemen Tıkla ve Giriş Yap!](https://nfsl.ink/perabet)  
 
-[![Perabet Giriş](https://resmim.net/cdn/2025/01/19/DnRSHM.png)](https://nfsl.ink/perabet)  
-[![Perabet Giriş](https://resmim.net/cdn/2025/01/19/DnRSHM.png)](https://nfsl.ink/perabet)  
+[![Perabet Giriş](https://resmim.net/cdn/2025/01/21/D9fQ3C.png)](https://nfsl.ink/perabet)  
+[![Perabet Giriş](https://resmim.net/cdn/2025/01/21/D9fQ3C.png)](https://nfsl.ink/perabet)  
 
 ---
 # Perabet - Perabet - Perabet
